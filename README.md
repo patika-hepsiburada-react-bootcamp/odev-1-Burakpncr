@@ -1,0 +1,1 @@
+1.Hafta Ödev1 Tamamlandı
